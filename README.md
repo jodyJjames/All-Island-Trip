@@ -1,6 +1,6 @@
 ## 🌊 HIGH TIDE: ALL-ISLAND TRIP 🎬  
 **A Season of Ecstasy Production**  
-_Adventure • Crime • Comedy • Carnival Vibes_
+Update README.md • Crime • Comedy • Carnival Vibes_
 
 ## 🔥 Overview
 "High Tide: All-Island Trip" is a standalone or spin-off feature film in the High Tide universe. After the heat of Port of Spain gets too real, Jody and the crew head on a full-island road trip across **Trinidad & Tobago**, looking to cool off... but end up in a new wave of madness, memories, and mayhem.
